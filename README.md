@@ -1,2 +1,2 @@
-# R.Swastik-Kumar-
+# R.Swastik Kumar
 Masters Student 
